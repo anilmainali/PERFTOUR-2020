@@ -29,6 +29,10 @@
 
 ![withscootmore](https://user-images.githubusercontent.com/10678180/73587202-b1561c00-447e-11ea-820c-806fa03c4410.jpeg)
 
+# The Performance Tour - Episode 07
+[The Performance Tour - Episode 07](https://www.youtube.com/watch?v=KoBLMcjPpis)
+
+
 # The Performance Tour - Episode 08
 [The Performance Tour - Episode 08](https://www.youtube.com/watch?v=--EyJyZUvWE)
 
