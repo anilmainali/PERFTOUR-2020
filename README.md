@@ -29,6 +29,17 @@
 
 ![withscootmore](https://user-images.githubusercontent.com/10678180/73587202-b1561c00-447e-11ea-820c-806fa03c4410.jpeg)
 
+# The Performance Tour - Episode 05
+[The Performance Tour - Episode 05](https://www.youtube.com/watch?v=qvaaG8QQG9Y&list=PLXRCdih3vTUEFz1TVyP7RRqEEk__CYGoB&index=4)
+
+
+# The Performance Tour - Episode 06 PART 1
+[The Performance Tour - Episode 06 PART 1](https://www.youtube.com/watch?v=TWnv6EzfXWM&list=PLXRCdih3vTUEFz1TVyP7RRqEEk__CYGoB&index=5)
+
+
+# The Performance Tour - Episode 06 PART 2
+[The Performance Tour - Episode 06 PART 2](https://www.youtube.com/watch?v=O5C1Cj38o7Y)
+
 # The Performance Tour - Episode 07
 [The Performance Tour - Episode 07](https://www.youtube.com/watch?v=KoBLMcjPpis)
 
